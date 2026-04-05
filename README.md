@@ -20,3 +20,9 @@ Free Fire é um dos jogos mais populares do mundo, e ter um nick personalizado f
 ## ⭐ Contribuição
 
 Sinta-se à vontade para sugerir melhorias.
+
+## 🔗 More Free Fire Tools
+
+- https://www.freefiremania.com.br/
+- https://www.freefiremania.com.br/codiguin-ff.html
+- https://www.freefiremania.com.br/calendario-free-fire.html
